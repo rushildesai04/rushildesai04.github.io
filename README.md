@@ -1,1 +1,1 @@
-# Rushil's Perosonal Website
+# Rushil's Personal Website
